@@ -7,7 +7,7 @@ goodbye everybody and have a jolly ol goodday. I am homeschooled
 
 wow hello
 
-<img width="844" height="700" alt="Screenshot 2026-06-17 204649" src="https://github.com/user-attachments/assets/cf818a91-01f5-4d9d-9453-b228bf545ce2" />
+<img width="533" height="400" alt="Screenshot 2026-06-17 204649" src="https://github.com/user-attachments/assets/cf818a91-01f5-4d9d-9453-b228bf545ce2" />
 
 i realized late that guy kind of looks like some thing from homestuck especially his pony i think I am in shambles now I need to stop making characters that look like other characters that are actually 
 
