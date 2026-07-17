@@ -6,5 +6,5 @@ i don't know how to make this fancy i'm working on that later goddamnit i use he
 
 Gallery
 
-<img width="855" height="710" alt="Screenshot 2026-06-17 204649" src="https://github.com/user-attachments/assets/cf818a91-01f5-4d9d-9453-b228bf545ce2" />
+<img width="844" height="700" alt="Screenshot 2026-06-17 204649" src="https://github.com/user-attachments/assets/cf818a91-01f5-4d9d-9453-b228bf545ce2" />
 
