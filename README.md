@@ -30,8 +30,17 @@ i realized late that guy kind of looks like some thing from homestuck especially
 <img width="101" height="121" alt="2642562_e358c" src="https://github.com/user-attachments/assets/e0202b43-9d82-40e0-ac24-8ec59977260d" />
 <img width="281" height="153" alt="MATT on MATT ACTION" src="https://github.com/user-attachments/assets/c2337bdd-4be5-4829-930f-8d22137d3af1" />
 
+#
 
+<img width="99" height="56" alt="rain of the bows" src="https://github.com/user-attachments/assets/2035ecfd-bb9e-4fee-97fb-ddde435c8aa3" />
+<img width="100" height="57" alt="I HEAR7 ANIMATED STAMPS" src="https://github.com/user-attachments/assets/fab43737-6dc6-4572-86b9-c64b0f5e0362" />
+<img width="99" height="56" alt="ornangenenece joe" src="https://github.com/user-attachments/assets/e2cc5e5f-43f1-47a2-a854-5ae5cd9c712d" />
 <img width="150" height="20" alt="HOLY BANANA!" src="https://github.com/user-attachments/assets/1071ec8d-2f4f-4b58-aff2-02bd915f1b81" />
+
+
+<img width="95" height="66" alt="sparklesparklespar" src="https://github.com/user-attachments/assets/715a37c4-119d-476f-9cdf-114a4e155a6a" />
+
+
 
 
 
