@@ -38,7 +38,8 @@ i realized late that guy kind of looks like some thing from homestuck especially
 <img width="150" height="20" alt="HOLY BANANA!" src="https://github.com/user-attachments/assets/1071ec8d-2f4f-4b58-aff2-02bd915f1b81" />
 
 
-<img width="95" height="66" alt="sparklesparklespar" src="https://github.com/user-attachments/assets/715a37c4-119d-476f-9cdf-114a4e155a6a" />
+
+ <img width="95" height="66" alt="sparklesparklespar" src="https://github.com/user-attachments/assets/715a37c4-119d-476f-9cdf-114a4e155a6a" />
 
 
 
