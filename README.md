@@ -42,5 +42,4 @@ i realized late that guy kind of looks like some thing from homestuck especially
 
 
 
-
-
+> Coding is evil -me
