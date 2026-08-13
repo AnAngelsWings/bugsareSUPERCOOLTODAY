@@ -4,10 +4,8 @@
 
 ‎‎ ㅤ  𝄂𝄚𝅦𝄚𝄞 𝅄ㅤ
 
-‎ ‎ ‎ ‎  Hello! my name is Tally.
+‎  ‎ ‎  Hello! my name is Tally.
 
-
-‎‎
 
 i'm tryna make this fancy i'm working on that goddamnit uh
 ‎
@@ -45,4 +43,4 @@ i found out late that his pony for that guy kind of looks like some guy from hom
 ️️️️️️️️️
 
 
-> Coding is evil. -me 
+> Coding is evil. - me 
