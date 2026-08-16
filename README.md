@@ -9,9 +9,12 @@
 
 i'm tryna make this fancy i'm working on that goddamnit uh
 ‎
-‎
-‎i use He/It pronouns and i am very good at being insulted at. I like roblox stuff,
-(i'm not really playing it as much anymore), myths, All Tomorrows, webseries stuff, ARGS, moral orel, parappa the rapper,  eddsworld and a webcomic called Poorly Planned Comics. (search it up  it's actually the name of that thing.) stuff I want to get into is Time Fcuk and Homestuck which i forget about so much (haha that rhymes haha), nd Madness Combat. goodbye everybody and have a jolly ol goodday. I am homeschooled
+
+i use He/It pronouns and i am very good at being insulted at. 
+
+stuff i like
+ `I like roblox stuff,
+(i'm not really playing it as much anymore), myths, All Tomorrows, webseries stuff, ARGS, moral orel, parappa the rapper,  eddsworld and a webcomic called Poorly Planned Comics. (search it up  it's actually the name of that thing.) stuff I want to get into is Time Fcuk and Homestuck which i forget about so much (haha that rhymes haha), nd Madness Combat.` goodbye everybody and have a jolly ol goodday. I am homeschooled
 
 i like using emoticons B- J and making ascii art sometimes but i forget about it alot
 
@@ -21,7 +24,9 @@ i like using emoticons B- J and making ascii art sometimes but i forget about it
 
 i found out late that his pony for that guy kind of looks like some guy from homestuck i think I am in shambles now I need to stop making characters that look like other characters that are actually 
 
-     lalalalalalalaalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalaalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalaalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalawow why did you scroll all the way here
+[![Hits](https://hits.sh/github.com/AnAngelsWings/hits.svg?style=plastic&label=Confetti!&extraCount=796&color=43c5c5&labelColor=313239)](https://hits.sh/github.com/AnAngelsWings/hits/)
+
+lalalalalalalaalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalaalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalaalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalalawow why did you scroll all the way here
 # 
 
 <img width="220" height="140" alt="ROFL COPTER!!!!!!!!" src="https://github.com/user-attachments/assets/ce23bfb0-d36b-47b1-8920-e02797fbe1a5" /> 
