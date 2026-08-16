@@ -12,9 +12,8 @@ i'm tryna make this fancy i'm working on that goddamnit uh
 
 i use He/It pronouns and i am very good at being insulted at. 
 
-stuff i like
- `I like roblox stuff,
-(i'm not really playing it as much anymore), myths, All Tomorrows, webseries stuff, ARGS, moral orel, parappa the rapper,  eddsworld and a webcomic called Poorly Planned Comics. (search it up  it's actually the name of that thing.) stuff I want to get into is Time Fcuk and Homestuck which i forget about so much (haha that rhymes haha), nd Madness Combat.` goodbye everybody and have a jolly ol goodday. I am homeschooled
+stuff i like>>> `I like roblox stuff,
+(i'm not really playing it as much anymore), myths, All Tomorrows, webseries stuff, ARGS, moral orel, parappa the rapper,  eddsworld and a webcomic called Poorly Planned Comics. (search it up  it's actually the name of that thing.) stuff I want to get into is Time Fcuk and Homestuck which i forget about so much (haha that rhymes haha), nd Madness Combat.` and have a jolly ol goodday. I am homeschooled
 
 i like using emoticons B- J and making ascii art sometimes but i forget about it alot
 
