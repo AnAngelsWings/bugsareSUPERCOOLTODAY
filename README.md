@@ -2,7 +2,7 @@
 #
 
 
-‎‎ ㅤ  𝄂𝄚𝅦𝄚𝄞 𝅄ㅤ
+‎‎ ㅤ  𝄂𝄚𝅦𝄚𝄞 𝅄ㅤ GUYS THIS RESPITORY IS BOUND TO CHANGE! FROM IT'S PATHETIC FORM!
 
 ‎  ‎ ‎  Hello! my name is Tally.
 
