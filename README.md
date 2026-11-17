@@ -5,7 +5,9 @@
 
 
 
-‎ ㅤ  𝄂𝄚𝅦𝄚𝄞 𝅄ㅤ GUYS THIS THING IS BOUND TO CHANGE
+‎ ㅤ  𝄂𝄚𝅦𝄚𝄞 𝅄ㅤ 
+
+GUYS THIS THING IS BOUND TO CHANGE
 
 ‎  ‎ ‎  Hello! my name is Tally. or Dan. or like whatever the hell i prefer the name tally a bit more
 
