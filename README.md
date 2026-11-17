@@ -1,10 +1,13 @@
 𐦂𖨆𐀪𖠋
 #
 
+<img width="265" height="399" alt="2026_11_16_107_Kleki" src="https://github.com/user-attachments/assets/38eae34e-b64a-4bc6-8e8d-15a25c77bfae" />
 
-‎‎ ㅤ  𝄂𝄚𝅦𝄚𝄞 𝅄ㅤ GUYS THIS RESPITORY IS BOUND TO CHANGE! FROM IT'S PATHETIC FORM!
 
-‎  ‎ ‎  Hello! my name is Tally.
+
+‎ ㅤ  𝄂𝄚𝅦𝄚𝄞 𝅄ㅤ GUYS THIS THING IS BOUND TO CHANGE
+
+‎  ‎ ‎  Hello! my name is Tally. or Dan. or like whatever the hell i prefer the name tally a bit more
 
 
 i'm tryna make this fancy i'm working on that goddamnit uhㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -13,7 +16,7 @@ i'm tryna make this fancy i'm working on that goddamnit uhㅤㅤㅤㅤㅤㅤㅤ�
 
 i use He/It pronouns and i am very good at being insulted at. 
  
-
+#
 stuff i like>>> `I like roblox stuff,
 (i'm not playing it as much anymore), myths, All Tomorrows, webseries stuff, ARGS, moral orel, parappa the rapper, the moon i rot behind (roblox game. idkkkk about the fandom i dont really engage in fandom stuff alot) eddsworld and a webcomic called Poorly Planned Comics. (search it up  it's actually the name of that thing.) stuff I want to get into is Time Fcuk and Homestuck which i forget about so much (haha that rhymes haha), nd Madness Combat.` and have a jolly ol goodday. I am homeschooled
 
